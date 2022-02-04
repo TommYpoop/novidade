@@ -1,2 +1,0 @@
-# novidade
-Novidades da semana
